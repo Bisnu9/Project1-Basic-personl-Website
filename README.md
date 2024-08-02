@@ -1,1 +1,1 @@
-# Project1-Basic-personl-Website
+# Project1-Basic-Personal-Website
